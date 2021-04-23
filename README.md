@@ -1,1 +1,0 @@
-# jpaitjr.github.io
